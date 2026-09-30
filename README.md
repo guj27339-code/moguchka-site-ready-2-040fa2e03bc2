@@ -1,1 +1,0 @@
-# moguchka-site-ready-2-040fa2e03bc2
